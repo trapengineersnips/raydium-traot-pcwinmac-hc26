@@ -1,4 +1,4 @@
-# 
+# حصرية raydium trading bot سير العمل لـ Mac OS | خفيف raydium trading bot سير العمل لـ PC Windows. مع إشعارات التنبيه و تجميع متعدد DEX — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
